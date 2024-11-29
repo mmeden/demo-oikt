@@ -5,3 +5,4 @@ kada?gdje?jel častiš?
 JUTRE,ŽMINJ,JA
 ne moren, gren doma:(((((((((, idući tjedan?
 MORE!!!!
+Jezero.
