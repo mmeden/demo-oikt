@@ -10,3 +10,8 @@ Jezero.
 
 # mia smrrrddiiiii
 - blablalba
+
+> hej
+> ti!
+> jedva čekam ručati.
+> kako se ti zoveš?
