@@ -15,4 +15,4 @@ Jezero.
 > ti!
 > jedva čekam ručati.
 > kako se ti zoveš?
-- [fipu] - najjaci fax
+
