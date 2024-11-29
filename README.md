@@ -7,3 +7,5 @@ JUTRE,ŽMINJ,JA
 ne moren, gren doma:(((((((((, idući tjedan?
 MORE!!!!
 Jezero.
+
+# mia smrrrddiiiii
