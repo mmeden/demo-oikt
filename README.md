@@ -3,3 +3,4 @@ GREMO U TO JE TO NA ČIZ?
 
 kada?gdje?jel častiš?
 JUTRE,ŽMINJ,JA
+ne moren, gren doma:(((((((((, idući tjedan?
